@@ -2,7 +2,7 @@
 - 👀 I’m interested in content creation primarily for managers.
 - 🌱 I’m currently learning AI.
 - 💞️ I’m looking to collaborate on whatever good for me.
-- 📫 How to reach me through my website   www.ssalamat.co.in 
+- 📫 How to reach me through my website   www.allwebapps.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
